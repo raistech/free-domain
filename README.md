@@ -12,4 +12,7 @@ Then enjoy your SubDomain
 if i didn't notice your issues/ pull request please contact at rais@xdata.my.id or simple dm via instagram @sepidolsenowman
 
 every subdomain will never use to criminal/illegal activity or i'll remove your SubDomain
+
+donation go to paypal.me/rais980
+
 Thank you!
